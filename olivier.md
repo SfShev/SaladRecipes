@@ -17,5 +17,6 @@
 
 1. In a large pot,add potatoes and carrots.Cover completely whith water.Bring to a boil and cook about 20-25 minutes or until a knife pierces through easily.
 
-2.In a small pot,add eggs,cover eggs will and bring to a boil cook.Cook eggs 8-10 minutes.
+2. In a small pot,add eggs,cover eggs will and bring to a boil cook.Cook eggs 8-10 minutes.
  
+ 3. Cube all of the ingredients.
