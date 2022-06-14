@@ -20,3 +20,5 @@
 2. In a small pot,add eggs,cover eggs will and bring to a boil cook.Cook eggs 8-10 minutes.
  
  3. Cube all of the ingredients.
+
+ 4. Cobine everything,mix.Add mayo to taste. You may need a little more than 1 cup,depending on sizes of you ingredients.
