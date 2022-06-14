@@ -27,3 +27,8 @@ Whisk in Parmesan. Season with salt, pepper, and more lemon juice, if desired.
 2. CROUTONS:
 Preheat oven to 375°. Toss bread with olive oil on a baking sheet; season with salt and pepper.
 Bake, tossing occasionally, until golden, 10–15 minutes.
+
+3. ASSEMBLY:
+Place whole romaine leaves (for the ideal mix of crispness, surface area, and structure) in a large bowl.
+Use a vegetable peeler to thinly shave a modest amount of Parmesan (a mound of grated Parmesan may look impressive, but all that clumpy cheese mutes the dressing).
+Use your hands to gently toss together the lettuce, croutons, and dressing. Top with the shaved Parm. 
