@@ -22,3 +22,5 @@
  3. Cube all of the ingredients.
 
  4. Cobine everything,mix.Add mayo to taste. You may need a little more than 1 cup,depending on sizes of you ingredients.
+
+ 5. Season whth salt,pepper and sugar.Add fresh dill,mix.
