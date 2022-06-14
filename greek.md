@@ -18,3 +18,7 @@ I mentioned on my Zucchini Fries recipes.
 Once you’ve got your ingredients ready, it’s as simple as slicing and dicing them to about the same size.
 And large chunks are preferred over a fine dice.
 Then, drizzle your salad with a Greek salad dressing and give it a gentle toss.
+
+## Recommendation 2
+If you’re looking for another Greek recipe to serve alongside this salad,
+I highly recommend my Grilled Chicken Souvlaki or Greek Chicken Kabobs recipe.
